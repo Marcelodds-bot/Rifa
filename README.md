@@ -1,2 +1,0 @@
-# Rifa
-Rifa Beneficiente
